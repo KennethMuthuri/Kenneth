@@ -1,0 +1,2 @@
+# Kenneth
+STARTING PROJECT
